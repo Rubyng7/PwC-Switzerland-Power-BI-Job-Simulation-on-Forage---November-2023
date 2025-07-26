@@ -22,6 +22,7 @@
 
 
 Certificate
+[PwC Switzerland_completion_certificate.pdf](https://github.com/user-attachments/files/21448245/PwC.Switzerland_completion_certificate.pdf)
 
 
 Reference Link
